@@ -2,7 +2,7 @@
 - 👀 I’m interested in knowing things
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me anywhere
+- 📫 How to reach me: anywhere
 - 😄 Pronouns: unknown
 - ⚡ Fun fact: I have no idea what I'm doing
 
