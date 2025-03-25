@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @couemi88-76
-- 👀 I’m interested in ...
+- 👀 I’m interested in knowing things
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me anywhere
